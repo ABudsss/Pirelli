@@ -1,1 +1,1 @@
-# Pirelli
+# Pirelli acquisition by Ferrari
